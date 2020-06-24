@@ -5,8 +5,12 @@
  *****WANNA TRY YOUR LUCK :) *****
  
    *YOU CAN PRESS ANY OUT OF 25 BUTTONS FOR THE TRY LIMIT OF 5 TRAILS
+   
+   
       *IF U FOUND THE DOLLAR (SYMBOL OF WINING ) IN LESS THAN 5 TRAILS :)
-         ***YES,YOU WON :)***
+      
+      
+  ***YES,YOU WON :)***
    
    
    *ONCE YOU ARE IN YOUR 5th TRY AND STILL CAN'T GET DOLLAR **OOPS** :( 
